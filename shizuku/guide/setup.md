@@ -1,4 +1,5 @@
-# User manual
+*👤user:* CHEATS
+*🔑pass:* 17K# User manual
 
 [[toc]]
 
